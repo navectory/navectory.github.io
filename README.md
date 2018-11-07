@@ -1,5 +1,5 @@
 # navectory.github.io
-**_Сайт для пользователя navectory_**
+# **_Сайт для пользователя navectory_**
 
 # Добро пожаловать в GitHub Pages
 
