@@ -20,6 +20,9 @@
 ## Задание 8.1.
 ![Прохождение онлайн-курса](https://talentedme.ru/upload/learning/certificates/certificate_uid_18949_cid_24.jpg)
 
+
+[Задание 9.1.](https://drive.google.com/file/d/1hkLsYOSgRCypGuhPZhu0kIY4e0aqzlPN/view?usp=sharing)
+
 [Задание 11.1](https://drive.google.com/file/d/1iKlHUtKYh6bE9W9UtTdIKKw03c5a2fmZ/view?usp=sharing)
 
 
