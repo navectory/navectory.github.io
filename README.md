@@ -17,7 +17,8 @@
 
 [Задание 7.](https://drive.google.com/file/d/13Et-SMFajdUCrLYzQwdvsDjKx3HNrd4P/view?usp=sharing)
 
-![Задание 8.1.](https://talentedme.ru/upload/learning/certificates/certificate_uid_18949_cid_24.jpg)
+##Задание 8.1.
+![Прохождение онлайн-курса](https://talentedme.ru/upload/learning/certificates/certificate_uid_18949_cid_24.jpg)
 
 [Задание 11.1](https://drive.google.com/file/d/1iKlHUtKYh6bE9W9UtTdIKKw03c5a2fmZ/view?usp=sharing)
 
