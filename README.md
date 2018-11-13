@@ -10,7 +10,10 @@
 ## Задания
 [Задание 1](https://drive.google.com/file/d/1oWr88lN7WscrrGv-eXcjk8acG_pYhE0R/view?usp=sharing)
 
+[Задание 3](https://drive.google.com/file/d/0Bw5ukthunVNEdHhHeWF5ZkVfVU0/view?usp=sharing)
+
 [Задание 11.1](https://drive.google.com/file/d/1iKlHUtKYh6bE9W9UtTdIKKw03c5a2fmZ/view?usp=sharing)
+
 
 
 [Задание В.5.2.](https://drive.google.com/file/d/1IEbEW-ZEjoGmaa8yWDBEBOqpyZEg0AfQ/view?usp=sharing)
