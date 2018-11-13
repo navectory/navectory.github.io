@@ -15,8 +15,8 @@
 
 [Задание](https://drive.google.com/file/d/1i3a73PEk92YMzAS_7EmwE3y4QkENy80Q/view?usp=sharing)
 
-[](https://drive.google.com/file/d/1xNGEqyY2ETrWydAj53Dykt3xcg-77mc3/view?usp=sharing)
+[Задание](https://drive.google.com/file/d/1xNGEqyY2ETrWydAj53Dykt3xcg-77mc3/view?usp=sharing)
 
-[](https://drive.google.com/file/d/1IEbEW-ZEjoGmaa8yWDBEBOqpyZEg0AfQ/view?usp=sharing)
+[Задание](https://drive.google.com/file/d/1IEbEW-ZEjoGmaa8yWDBEBOqpyZEg0AfQ/view?usp=sharing)
 
-[](https://drive.google.com/file/d/1p_LHyT2KYPfJvmZKUa1PRcW7vqlHHgwU/view?usp=sharing)
+[Задание](https://drive.google.com/file/d/1p_LHyT2KYPfJvmZKUa1PRcW7vqlHHgwU/view?usp=sharing)
