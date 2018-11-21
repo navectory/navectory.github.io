@@ -16,6 +16,8 @@
 
 [Задание 5.1.](https://drive.google.com/file/d/1p1f8dDqKNL5ADewA3uK1uITER8G6AQG5/view?usp=sharing)
 
+[Задание 5.2.](https://drive.google.com/file/d/1DO2cl27lM6R6_RkreE5L_XABCPIBrh68/view?usp=sharing)
+
 
 [Задание 7.](https://drive.google.com/file/d/13Et-SMFajdUCrLYzQwdvsDjKx3HNrd4P/view?usp=sharing)
 
