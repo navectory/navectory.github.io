@@ -39,7 +39,7 @@
 [Задание В.5.2.](https://drive.google.com/file/d/1IEbEW-ZEjoGmaa8yWDBEBOqpyZEg0AfQ/view?usp=sharing)
 
 
-[Задание 6.2](https://drive.google.com/file/d/1MFbjfwPvqDg8dfkg4B_BOrstmSAYc7BK/view?usp=sharing)
+[Задание В.6.2.](https://drive.google.com/file/d/1MFbjfwPvqDg8dfkg4B_BOrstmSAYc7BK/view?usp=sharing)
 
 [Задание В.8.1.  ](https://drive.google.com/file/d/1i3a73PEk92YMzAS_7EmwE3y4QkENy80Q/view?usp=sharing)
 
