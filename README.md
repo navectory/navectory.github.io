@@ -10,6 +10,8 @@
 ## Задания
 [Задание 1.](https://drive.google.com/file/d/1oWr88lN7WscrrGv-eXcjk8acG_pYhE0R/view?usp=sharing)
 
+[Задание 2.1.](https://drive.google.com/file/d/17GgNBHz8nKJCOixH_q3nGgp1bFMbe6Kg/view?usp=sharing)
+
 [Задание 2.2.](https://drive.google.com/file/d/1Tyc8lJVW4_BF5yVArUJ5nMeAqWZTvmso/view?usp=sharing)
 
 [Задание 3.](https://drive.google.com/file/d/0Bw5ukthunVNEdHhHeWF5ZkVfVU0/view?usp=sharing)
@@ -36,7 +38,12 @@
 
 [Задание В.5.2.](https://drive.google.com/file/d/1IEbEW-ZEjoGmaa8yWDBEBOqpyZEg0AfQ/view?usp=sharing)
 
+
+[Задание 6.2](https://drive.google.com/file/d/1MFbjfwPvqDg8dfkg4B_BOrstmSAYc7BK/view?usp=sharing)
+
 [Задание В.8.1.  ](https://drive.google.com/file/d/1i3a73PEk92YMzAS_7EmwE3y4QkENy80Q/view?usp=sharing)
+
+[Задание В.9.2.](https://drive.google.com/file/d/1ctw5VJ0u3vTliytWPy7RWNxqxusQ6buk/view?usp=sharing)
 
 [Задание В.10.2.](https://drive.google.com/file/d/1xNGEqyY2ETrWydAj53Dykt3xcg-77mc3/view?usp=sharing)
 
