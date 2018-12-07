@@ -51,3 +51,6 @@
 
 
 [Задание В.9.1.](https://drive.google.com/file/d/1p_LHyT2KYPfJvmZKUa1PRcW7vqlHHgwU/view?usp=sharing)
+
+
+[Эссе](https://drive.google.com/file/d/18Aem3C6t2kSWkHsk2TBM-zYDZiA6F7GR/view?usp=sharing)
